@@ -1,0 +1,1 @@
+Instalátory launcheru Novara
